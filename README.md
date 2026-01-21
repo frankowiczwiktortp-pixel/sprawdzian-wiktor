@@ -1,1 +1,1 @@
-# sprawdzian-wiktor
+Wiktor Frankowicz
